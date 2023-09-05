@@ -1,0 +1,1 @@
+# political-juggernuts-a-quantitative-analysis-of-candidates-the-2019-lok-sabha-elections
